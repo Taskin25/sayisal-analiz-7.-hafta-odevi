@@ -1,0 +1,1 @@
+# sayisal-analiz-7.-hafta-odevi
